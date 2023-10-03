@@ -1,3 +1,5 @@
 - 👋 Hi, I’m @Emi044
 - 🚀 I'm interessed in web design and developement
+- 🍃 I'm now working on DVF
+- 🕺 I'm currently working on e-swing.it
 - 📫 How to reach me emineri04@gmail.com
